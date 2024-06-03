@@ -1,4 +1,4 @@
-# eartriannerPolítica de Privacidade do Ear Trainer
+Política de Privacidade do Ear Trainer
 
 A sua privacidade é importante para nós. É política do Ear Trainer respeitar a sua privacidade em relação a qualquer informação sua que possamos coletar no aplicativo Ear Trainer, disponível no Google Play Store.
 
